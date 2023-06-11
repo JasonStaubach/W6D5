@@ -3,5 +3,3 @@
 
 # hard at work
 
-
-# Sam has a nice butt
